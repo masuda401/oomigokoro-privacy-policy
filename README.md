@@ -1,0 +1,1 @@
+# oomigokoro-privacy-policy
